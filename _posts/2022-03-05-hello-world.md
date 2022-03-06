@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hello World"
-permalink: /hello-world
+permalink: hello-world
 ---
 a sample story by [Double-A](https://github.com/double-a-stories)
 
