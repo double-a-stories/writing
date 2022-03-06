@@ -2,9 +2,7 @@
 layout: post
 title:  "Hello World"
 permalink: hello-world
----
-a sample story by [Double-A](https://github.com/double-a-stories)
-
+description: Sample story, where nothing happens.
 ---
 
 Hollis looked out at the void, and blinked.
