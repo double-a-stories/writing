@@ -1,0 +1,10 @@
+---
+layout: default
+---
+<h1>"{{ page.title | default: "Untitled" }}" by <a href="{{ "/" | relative_url }}">{{ page.author | default: site.author }}</a></h1>
+
+{{ content }}
+
+---
+
+{{page.date}}
