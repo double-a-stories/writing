@@ -2,7 +2,7 @@
 layout: default
 ---
 <h1>"{{ page.title | default: "Untitled" }}" by <a href="{{ "/" | relative_url }}">{{ page.author | default: site.author }}</a>
-  {% for tag in page.tags %}<span class="tag">{{ tag }}</span>{% endfor%}
+  {% for tag in page.tags %}<span class="badge badge-secondary">{{ tag }}</span>{% endfor%}
 </h1>
 
 {{ content }}
