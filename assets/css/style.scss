@@ -3,11 +3,35 @@
 
 @import "jekyll-theme-primer";
 
+
+:root {
+    --color: #111;
+    /* Semi-transparent decoration color */
+    --light: #eaecef;
+    /* Link hover color */
+    --accent: #d93;
+    /* Default body font */
+    --font-stack: -apple-system, BlinkMacSystemFont,  Segoe UI, Roboto, Helvetica Neue, sans-serif;
+    --font-size: clamp(1rem, 3vw, 1.4rem);
+}
+
+
 .tag {
     display: inline-block;
-    background-color: #555;
+    background-color: var(--accent);
     border-radius: 0.25rem;
     padding: 0 0.5ch;
     font-size: initial;
     color: white;
+}
+
+/* Links */
+a[href] {
+    color: var(--color, #111);
+    text-decoration-color: var(--light, rgba(0, 0, 0, 20%));
+}
+
+a[href]:hover, a[href]:focus, a[href]:active {
+    color: var(--accent, #d93);
+    text-decoration-color: var(--accent, #d93);
 }
