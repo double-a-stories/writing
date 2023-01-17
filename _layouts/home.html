@@ -3,7 +3,7 @@ layout: default
 ---
 
 {% if site.title and site.title != page.title %}
-<h1><a href="{{ "/" | absolute_url }}"><img class="circle" width="100" height"100" src="https://avatars.githubusercontent.com/u/50436716" alt="My profile picture, a drawing of a cat with a VR headset. Created by Kazooeybloo. This image is an Extremely Fungible Token."/></a><br>{{ site.title }}</a></h1>
+<h1><a href="{{ "/" | absolute_url }}"><img class="circle" width="100" height"100" src="{{ "/logo.png" | absolute_url }}" alt="My profile picture, a drawing of a cat with a VR headset. Created by Kazooeybloo. This image is an Extremely Fungible Token."/></a><br>{{ site.title }}</a></h1>
 {% endif %}
 
 {{ content }}
