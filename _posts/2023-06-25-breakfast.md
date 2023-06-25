@@ -1,7 +1,7 @@
 ---
 layout: post
-title:  "A Nice Breakfast"
-permalink: /rp/breakfast
+title:  "A Nice Breakfast (RP Log)"
+permalink: /a-nice-breakfast
 tags: vore rp
 description: Ana and her girlfriend enjoy a nice "filling" meal at Sloppy's Buffet.
 ---
