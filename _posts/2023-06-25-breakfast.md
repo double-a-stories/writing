@@ -2,11 +2,15 @@
 layout: post
 title:  "A Nice Breakfast"
 permalink: /rp/breakfast
-tags: vore "roleplay log"
-description: A foodplay RP between Ana the Hyena and Belle the Dragon
+tags: vore rp
+description: Ana and her girlfriend enjoy a nice "filling" meal at Sloppy's Buffet.
 ---
 
-*(CW: Oral vore. F>FF. Dubious/nonconsensual. Musk hypnosis. Oral/vaginal sex. Digestion. Stuffing. Food play. Multi-prey. Permadeath. Scat disposal.)*
+This is a highly edited transcription of a vore roleplay.
+
+Content warning: Oral vore. Sex in public. F>FF. Food play. Dubious/nonconsensual. Musk hypnosis. Digestion. Stuffing. Food play. Multi-prey. Permadeath. Scat disposal.
+
+---
 
 Syrupy sunlight dribbles between the blinds, over marshmallow white pillows, and pools around two bodies nestled together like sausages. An enormous spotted hyena, and a stout white dragoness. The hyena wipes sleep from her orange eyes, but remains nestled in the little bed. It's cozy, albeit a little small for her enormous curvy figure. A little drool has accumulated in her mouth, which she swallows. Feeling her girlfriend stir next to her, she puts her face right next to hers, and murmurs, "Morning Belle!"
 
