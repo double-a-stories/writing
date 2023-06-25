@@ -94,15 +94,9 @@ I rub you (sloshing you and the rest of wet hot meal together) and jokingly ask 
 
  **"You two are gonna look sooo cute with your bones all tangled and crushed together..."** 
 
-(it is!!~)
-
-literally fucking love rping with you
-
 > I murr softly as I feel you moving, being sloshed around inside of your gut until i finally feel the mouse being sent down with me, having her land in the gut along with me, she was pretty much laying smothered over the top of my body, but with a quick few squirms, I manage to get the mouse underneath me, smothering her in food and gut chyme, my hands and weight keeping her pinned against the stomach wall as she tries to fight and squirm, but ultimately just giving in, no longer having any fight left in her.  **"there you go.. gosh we are going to make my girlfriend so fucking fat.~"**
 
-> Literally love rping with you too, massive fucking joy
-
- **"NGH!! HELP! h- aCK BLegh! Hhh... hhahhh..."** she gradually settles down at your touch, hyperventilating just helping circulate my musk through her addled brain. I giggle happily as you aid in subduing your fellow prey.  **"Mmm. You can have your fun in there Belliebutt, but don't drown her. I wanna feel the struggles once digestion starts."** The mouse sputters and struggles limply against you. All she can manage is to deliriously sputter,  **"D-digestion? Why does that make me... so horny..."**
+**"NGH!! HELP! h- aCK BLegh! Hhh... hhahhh..."** she gradually settles down at your touch, hyperventilating just helping circulate my musk through her addled brain. I giggle happily as you aid in subduing your fellow prey.  **"Mmm. You can have your fun in there Belliebutt, but don't drown her. I wanna feel the struggles once digestion starts."** The mouse sputters and struggles limply against you. All she can manage is to deliriously sputter,  **"D-digestion? Why does that make me... so horny..."**
 
 I sit down in a booth while the pig behind the counter shamelessly rubs one out, and casually peruse the mouse's belongings.  **"Ooh, credit card!"** I rub the two of you affectionately, squelching and slathering you in shmaltz.  **"She's probably already forgotten, but in case it helps,  her name is Penny."** 
 
@@ -116,7 +110,7 @@ I squeeze your slimy little bodies together and coo,  **"Better enjoy it fast, h
 
 (The other occupants of the diner except the pig fled in fear once I pinned the mouse)
 
-> My pant's were already off, my incredibly hard erection pushing down on her.. until without another word, save for a grunt and a groan, I pump myself inside of her, thrusting deeply as I mulch on her hips, lips desperately kissing and locking together as once again, I show off how damn gay I am. the inside of the mouse felt so fucking good.. she was so tight.. so warm.. gosh I didn't want to stop, to fuck her into mulch for you.. then soon to be followed after, I don['t even make a response to your words, just continually humping and moaning, fucking and pumping.. churning up the stomach with our movements.~
+> My pant's were already off, my incredibly hard erection pushing down on her.. until without another word, save for a grunt and a groan, I pump myself inside of her, thrusting deeply as I mulch on her hips, lips desperately kissing and locking together as once again, I show off how damn gay I am. the inside of the mouse felt so fucking good.. she was so tight.. so warm.. gosh I didn't want to stop, to fuck her into mulch for you.. then soon to be followed after, I don't even make a response to your words, just continually humping and moaning, fucking and pumping.. churning up the stomach with our movements.~
 
 Penny moans and squeals,  **"MMmmm!!! Oh... oh gods... yess..."**
 
