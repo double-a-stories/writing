@@ -23,15 +23,15 @@ A story about a mouse, two lesbians, and their abusive partners going to a cabin
   * she/her. black cat. early 30s.
   * a black cat. narcissistic and controlling. leather "domme". karen-coded.
 * Ilex the Dog
-  * *ilex*: alt. name for Holly)
-  * (she/her. dog. early 20s)
+  * *ilex*: alt. name for Holly
+  * she/her. early 20s
   * a shy nerdy transbian. She's a soft-spoken nerd. cutecore. Fluttershy-coded.
 * Val the Rabbit
   * short for "Valerian" (an alternative to catnip)
-  * (she/her. harlequin rabbit)
+  * she/her. harlequin rabbit. mid 20s.
   * hypersexual petplay collared goth. a messy horny mentally ill little mess.
 * Syx the Tiger
-  * (she/her. white tiger. mid 30s.)
+  * she/her. white tiger. mid 30s.
   * a sex worker. very friendly and relaxed, prone to lighthearted teasing.
 
 ## Outline ##
@@ -39,11 +39,11 @@ A story about a mouse, two lesbians, and their abusive partners going to a cabin
 ### Prologue ####
 
 * Fennel (they/them) is a meek white mouse. After a stressful week at work Cain (he/him), has invited them to safely indulge their mutual vore fetish at an AirBNB up in the mountains. Fennel is nervous, but Cain lovingly "guides" them into accepting. Cain and his friend hired a vore performer named Syx, a friendly and charming tigress, for a hot vore orgy.
-* Lots of subtle/unsubtle red flags of the abusive/manipulative way Cain operates (setting fast deadlines, asking for decisions when Fennel is tired and grumpy, love-bombing). Also show a contrast in the way Cain and Winny casually ignore consent, while the bunnies and Syx do their best to practice it.
+* Lots of subtle/unsubtle red flags of the abusive/manipulative way Cain operates (setting fast deadlines, asking for decisions when Fennel is tired and grumpy, love-bombing). Also show a contrast in the way Cain and Winny casually ignore consent, while Ilex, Val, and Syx do their best to practice it.
 
 ### Act 1 ####
 * Friday evening.
-* The pair arrive after a 4 hour uber, and meet Winny, a narcissistic black rabbit, her polycule of (also-extremely-recent) girlfriends Ilex, a meek gray rabbit, and Val.  No red flags here. We spend a brief time getting to know them, and the cabin, which has 3 bedrooms, and a spacious den. For fuuckin'.
+* Fennel and Cain arrive after a 4 hour uber ride, and meet Winny, a narcissistic black rabbit, and her polycule of (also-extremely-recent) girlfriends Ilex, a meek puppygirl, and Val, horny ass rabbit.  No red flags here. We spend a brief time getting to know them, and the cabin, which has 3 bedrooms, a hot tub, and a spacious living room. For fuuckin'.
 * Winnie notices a small dirty spot in the kitchen, and steps out (very little cell reception) to furiously call the cabin's owner and demand a more thorough job next time [[cares a *lot* about cleaning up spills, hmm.]]. True Karen behavior. Val is really horny and propositions Fennel for sex, then asks Ilex to "help her out with her uh... luggage" [[penis]]. The two of them disappear into their bedroom, leaving Fennel and Cain.
 * Cain is consistently pretty dismissive of Fennel's emotional state, but likes kissing and teasing them. He goes off to unpack his stuff [[secretive about his baggage?]], and tells Fennel to get started on dinner, leaving them along with their thoughts.
 * Light conversation over dinner. Winny and Cain catch up about work (they're old richkid college buddies). Val keeps pawing at Fennel's paws and crotch under the table. They pretend not to notice, but after working her way up their thighs and jabbing at their crotch, they blush furiously and choke on their food. Val realizes that they were touching them and not Ilex like she meant to, and laughs.
@@ -90,3 +90,4 @@ The End.
 * Having so many characters risks some of them becoming superfluous. Cain and Winnie kinda blur together in the finale, so make sure they keep their individual flair.
 * Second person is very tempting, and helps justify why Fennel has so little agency. Maybe this should be another adventure game?
 * Or let's just give Fennel more agency?
+* Ilex's name is a holdover from when she was a bunny. should probably give her a name less similar to Syx.
