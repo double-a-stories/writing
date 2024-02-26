@@ -38,7 +38,7 @@ A story about a mouse, two lesbians, and their abusive partners going to a cabin
 
 ### Prologue ####
 
-* Fennel (they/them) is a meek white mouse. After a stressful week at work Cain (he/him), has invited them to safely indulge their mutual vore fetish at an AirBNB up in the mountains. Fennel is nervous, but Cain lovingly "guides" them into accepting. Cain and his friend hired a vore performer named Syx, a friendly and charming tigress, for a hot vore orgy.
+* Fennel is a meek white mouse. After a stressful week at work, their boyfriend Cain invites them to safely indulge their mutual vore fetish at an AirBNB up in the mountains. Fennel is nervous, but Cain lovingly "guides" them into accepting. Cain and his friend hired a vore performer named Syx, a friendly and charming tigress with great reviews. She'll swallow them (and two others) whole, and then let them out safely on Sunday morning.
 * Lots of subtle/unsubtle red flags of the abusive/manipulative way Cain operates (setting fast deadlines, asking for decisions when Fennel is tired and grumpy, love-bombing). Also show a contrast in the way Cain and Winny casually ignore consent, while Ilex, Val, and Syx do their best to practice it.
 
 ### Act 1 ####
